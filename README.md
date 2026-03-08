@@ -5,12 +5,13 @@
 ## Background
 _Content Writer deeply interested in SEO and digital marketing._
 - MBA in Marketing from [Dr. G.R. Damodaran College of Science](https://www.grd.org/grdcs).
-- Assess for Success: Marketing Analytics and Measurement [Google](https://www.coursera.org/account/accomplishments/records/ZQN93J5B1LXJ).
-- AI-Powered Performance Ads [Skillshop](https://skillshop.credential.net/a8d5df08-eb3e-4a70-9b70-e7e44964d450#acc.0fOS9abz).
+- BSc Optometry from [Abate College](https://abateinstitutions.com/optometry).
+
 
   ## Certifications
 - Content Marketing Essentials for SEO and AI Search from [Semrush](https://static.semrush.com/academy/certificates/65c1b609a8/savan-krishna_25.pdf).
-- BSc Optometry from [Abate College](https://abateinstitutions.com/optometry).
+- Assess for Success: Marketing Analytics and Measurement from [Google](https://www.coursera.org/account/accomplishments/records/ZQN93J5B1LXJ).
+- AI-Powered Performance Ads from [Skillshop](https://skillshop.credential.net/a8d5df08-eb3e-4a70-9b70-e7e44964d450#acc.0fOS9abz).
 
 ## Recent Projects / Employment
 - I'm currently working on social media content for promoting the D4D Online. 
