@@ -9,7 +9,7 @@ _Content Writer deeply interested in SEO and digital marketing._
 
 ## Recent Projects / Employment
 - I'm currently working on social media content for promoting the D4D Online. 
-- I craft creatives for the ad campaigns and also work on organic boosting of organic traffic through SEO blog writing.
+- I craft creatives for the ad campaigns and also work on organic boosting of traffic through SEO blog writing.
 
 ## Links:
 - [LinkedIn](https://www.linkedin.com/in/writer-savan-krishna)
