@@ -13,5 +13,5 @@ _Content Writer deeply interested in SEO and digital marketing._
 
 ## Links:
 - [LinkedIn](https://www.linkedin.com/in/writer-savan-krishna)
-- [Portfolio]([https://www.mathtodata.com/](https://www.notion.so/Savan-Krishna-17aa1187f1aa8054a66dcfe58381bc89)
+- [Portfolio](https://www.notion.so/Savan-Krishna-17aa1187f1aa8054a66dcfe58381bc89)
 - [Medium](https://savankrishna.medium.com/)
